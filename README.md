@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Joeylikesbirds
+- 👀 I’m interested in programming and web development
+- 🌱 I’m currently learning programming and analysis
+- 💞️ I’m looking to collaborate on new projects
+- 📫 How to reach me @joeylikesbirds on all socials
